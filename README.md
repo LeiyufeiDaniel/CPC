@@ -1,2 +1,2 @@
-# zhenghuo.github.io
-play
+# CPC
+中国共产党好！
